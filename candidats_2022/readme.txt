@@ -1,0 +1,1 @@
+Les vignettes des candidats
